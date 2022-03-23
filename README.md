@@ -1,0 +1,2 @@
+# fuck-ru
+Fuck russia
